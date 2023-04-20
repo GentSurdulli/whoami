@@ -1,1 +1,1 @@
-## [instagram:] (https://www.instagram.com/gentsurdullii/)
+## instagram: (https://www.instagram.com/gentsurdullii/)
